@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Logic Pro for macOS addon with Logic Pro for macOS advanced Addon: lower-thirds & proxy-editing. Featuring lower-thirds and proxy-editing, it's the best choice
 
 
 
